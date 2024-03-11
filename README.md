@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning **DATA**
 - 💞️ I’m looking to collaborate on **DATA**
 - 📫 How to reach me syreziggy@gmail.com
-- 😄 Pronouns: HUGE MASCULINE MAN
+- 😄 Pronouns: HIM
 - ⚡ Fun fact: I AM not 6"4
 
 <!---
