@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @syre-cmd
-- 👀 I’m interested in **DATA**
-- 🌱 I’m currently learning **DATA**
-- 💞️ I’m looking to collaborate on **DATA**
+- 👀 I’m interested in **DATA & AI**
+- 🌱 I’m currently learning **DATA & AI**
+- 💞️ I’m looking to collaborate on **DATA & AI**
 - 📫 How to reach me syreziggy@gmail.com
 - 😄 Pronouns: HIM
 - ⚡ Fun fact: I AM not 6"4
